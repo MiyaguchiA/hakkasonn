@@ -1,2 +1,2 @@
-# 猫かわいい
-# nekokawaii
+# 猫かわいい!
+# nekokawai!
